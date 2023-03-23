@@ -4,7 +4,7 @@
 
 I'm a fullstack developer with a passion for learning and building things. I'm currently working on a few projects, including a Financial Literacy app and a AI powered code explainer.
 
-I'm passionate about building things that help people and I'm always looking for new opportunities to learn and grow.
+I'm always looking for new opportunities to learn and grow, reach out anytime!
 
 
 ## Here's what I work with
