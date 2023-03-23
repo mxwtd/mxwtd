@@ -14,4 +14,4 @@ I'm passionate about building things that help people and I'm always looking for
 
 ## Contact Me
 
-### [LinkedIn](https://www.linkedin.com/in/maxwell-lee-5b6b3b1b3/) ↘
+### [LinkedIn](https://www.linkedin.com/in/maxwell-lee-5b6b3b1b3/) ➘
