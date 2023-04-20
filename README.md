@@ -2,7 +2,7 @@
 
 ## Portfolio
 
-### [Portfolio](https://www.maxwtd.com) ➘
+### [maxwtd.com](https://www.maxwtd.com) ➘
 
 ## About Me
 
